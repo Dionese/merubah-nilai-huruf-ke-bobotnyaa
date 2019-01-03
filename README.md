@@ -1,0 +1,1 @@
+# merubah-nilai-huruf-ke-bobotnyaa
